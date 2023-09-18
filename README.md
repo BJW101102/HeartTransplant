@@ -1,5 +1,4 @@
 # HeartTransplant
-Contains code for the game HeartTransplant from Texas A&amp;M's, Chillenium 
 Heart Transplant is a game where you play inside a brain battling against emotions. You have the ability to change into two different characters and use their unique abilities to face off against some difficult emotions, such as anger, anxiety, and sadness!
 
 Made By:
