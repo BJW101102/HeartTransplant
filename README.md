@@ -31,4 +31,6 @@ Why: because your heart has more love to give
 
 lover boy: He loved. Fully. So full that not even an empty heart stood a chance. This was however his downfall as no one could receive all his love nor give him enough love. This dissatisfaction lead to his crying heart running out of tears to shed. Even now, after losing his heart, he loves as if it's the only thing he knows.
 
-dog trainer: Her and her dogs were always together. they were essentially the same being. They had been with her since she was born and vice versa.  Her heart became 1/3 of what it was when they died, so she followed her heart.
+Dog trainer: Her and her dogs were always together. they were essentially the same being. They had been with her since she was born and vice versa.  Her heart became 1/3 of what it was when they died, so she followed her heart.
+
+
