@@ -34,3 +34,5 @@ lover boy: He loved. Fully. So full that not even an empty heart stood a chance.
 Dog trainer: Her and her dogs were always together. they were essentially the same being. They had been with her since she was born and vice versa.  Her heart became 1/3 of what it was when they died, so she followed her heart.
 
 
+
+
